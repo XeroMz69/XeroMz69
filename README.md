@@ -1,4 +1,4 @@
-Sedang memahami C and C++
+pengen punya hp bagus tpi nggak punya uang
 
 <!---
 XeroMz69/XeroMz69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
